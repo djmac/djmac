@@ -1,4 +1,4 @@
-djmac
+www.DJMAC.CO
 =====
-
-DJ MAC MUSIC
+Andriod users
+Add Homepage to widgets the app will work and save.
